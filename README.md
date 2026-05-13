@@ -1,3 +1,5 @@
 HAZIRLAYANLAR:
+
 Sinem Murat-24181616015 
+
 Sude Nur Sönmez-24181617016
